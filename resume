@@ -1,0 +1,73 @@
+# Yinuo (Enoch) Chen
+
+672-338-0924 · [enochchen111@gmail.com](mailto:enochchen111@gmail.com) · Surrey, BC · linkedin.com/in/yinuo-enoch-chen
+
+---
+
+## Summary
+
+First-year Chemical Engineering student at the University of Toronto seeking part-time or summer work to gain hands-on experience. Proven ability to lead, communicate, and deliver results across academic, professional, and community settings.
+
+---
+
+## Education
+
+**University of Toronto** · Bachelor of Applied Science, Chemical Engineering  
+2025 – Present · Expected graduation: 2029–2030
+
+**Surrey Christian Secondary School** · Surrey, BC · Grade 11–12 · 2023–2025
+
+**St. Croix Lutheran Academy** · Minnesota, USA · Grade 9–10 · 2021–2023
+
+---
+
+## Experience
+
+**Project Manager – Engineering Design Project**  
+_University of Toronto · Client Project with Cargill Meat Solutions Distribution · 2026_
+
+- Led a team project for Cargill to design a mechanical system improving meat load transport efficiency at their processing plant.
+- Managed the full design process as project manager, coordinating directly with the Cargill client and maintaining detailed documentation of progress, decisions, and deliverables.
+
+**Private Tutor**  
+_Self-Employed · 2024 – 2025_
+
+- Tutored three students across Grade 8 and Grade 11 in Math, Science, Pre-Calculus, and Chemistry — over 40 hours total.
+- Grade 11 student improved from 70% to 90%; Grade 8 student passed after being at risk of failing.
+- Acquired all clients through teacher and peer referrals.
+
+---
+
+## Skills
+
+- **Languages:** English (fluent), Mandarin (fluent)
+- **Programming:** Python — chemical equation balancer and stoichiometry calculator
+- **Licences:** British Columbia Class 7 Driver's Licence
+- **Softer Skills:** Public speaking, team leadership, event coordination, cross-cultural communication
+- **Physical:** Comfortable with sustained physical labour; experienced with lawn care, pressure washing, and outdoor maintenance
+
+---
+
+## Volunteering
+
+**Production Team Volunteer – Sound & Media**  
+_Vivid Church Toronto · September 2025 – Present_
+
+- Run live audio and manage soundboard weekly for Sunday services of ~100 attendees.
+- Operate presentation software for worship slides and lyrics.
+
+**VBS Camp Host & Small Group Leader**  
+_Christ Worship Center · Summer 2025_
+
+- Co-hosted a 5-day Bible camp for 100+ children (Grades 1–7), emceeing the full program and managing all transitions.
+- Led theatre performances and facilitated a small group throughout the camp.
+
+**English Teaching Volunteer – International Camp**  
+_Wolgwang Christian School · Gwangju, South Korea · Summer 2024_
+
+- Travelled with a team of 13 students and 3 teachers to run a 5-day English camp for Korean elementary students.
+- Co-led a class of 20 students; independently led large-group activities for all 120 camp participants.
+
+---
+
+_References available upon request_
